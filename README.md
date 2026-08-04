@@ -1,7 +1,15 @@
-all media i am into i consume critically and rarely do i ever condone the actions of creators/characters. i am considered a darkshipper/comshipper so if you dont like that feel free to hide me. i wont take offense lol. i dont like anything incestual/kodocon-esque since it makes me uncomfortable.
+<p align="center">hi.  i'm kyu but i go by a lot of names at this point #inconsistent #myidentityforeverlost</p>
 
-i hide freely. please do not come to my ata asking why you were hidden or get a middle man to ask why you or your friends were hidden, its really annoying and i dont think you should be taking this game this seriously to that degree. if weve never talked, or arent friends, it shouldnt be an issue to you. usually when i do hide people, its either because i was annoyed in the moment and it was most likely a 24 hour hide... but i do permenantly hide if youre an actual weirdo or you just display annoying behavior that i do not like and wouldnt like to see.
+i am mostly on this game for my partner and my friends... usually you'll see me sitting with them, but feel free to interact if you wany anyway~ 
 
-im not all that social and suck at talking, but if you want to be friends go for it... i cant promise that i will be the most talkative person. just dont be an actual horrible person and we can be friends. and please do not be weird to me or my friends or i will not talk to you and hide you thank you.
+<p align="center">when it comes to interaction, whispering to talk is mostly preferred!</p>
+<p align="center">i am usually offtab and doing something else, but you can also sign my ata to get my attention if you desire. do whatever you want forever. (^_^)b</p>  
+
+<p align="center">don't really have a dni, but i will hide you if you annoy me or just are a bit off or odd to me; whenever i hide it's usually nothing personal. i am just easily irritated by people, and usually it's a 24 hour hide. but if you're the unlucky few who were hidden permanently #sorry. you'll be unhidden whenever i feel like it. do not get your friends or another person to ask why you were hidden. this will just make the hiding timer Longer.</p> 
+
+i'm not that much of a social person, but i will try my best, okay? i may come off as awkward and dry but it's just because i suck at conversation
+<p align="center">just don't be a horrible or weird person and we can be friends. i'll try my best for you.</p> 
+
+
 
 
