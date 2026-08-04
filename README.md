@@ -7,6 +7,8 @@
 <p align="center">i'm not that much of a social person, but i will try my best, okay? i may come off as awkward and dry but it's just because i suck at conversation. just don't be a horrible or weird person and we can be friends.</p>
 <p align="center">i'll try my best for you.</p> 
 
-
+<p align="center">
+  <img src="https://files.catbox.moe/f9ybhq.gif" alt="lala">
+</p>
 
 
